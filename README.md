@@ -1,4 +1,4 @@
-  👋 Hey there! I’m @DukeGW
+  👋 Hey there! My name is Duke Wall
   
   👀 I’m interested in the hardware of computers and love to find a solution to any error that can appear
   
